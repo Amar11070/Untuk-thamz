@@ -1,0 +1,2 @@
+# Untuk-thamz
+Thamz sayang
